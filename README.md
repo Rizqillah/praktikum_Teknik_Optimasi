@@ -1,1 +1,2 @@
-# praktikum_Teknik_Optimasi
+Muhammad Taqiy Rizqillah - 1800018135
+Praktikum TO Selasa 07.30 Kelas B
